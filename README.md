@@ -1,3 +1,4 @@
+hi mas yuda mas rexy, ini susah banget praktikumnyaaa(1)
 Halo, ini tugas praktikum 
 Kelompok 3 WiuWiu
 
