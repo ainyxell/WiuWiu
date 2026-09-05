@@ -1,1 +1,1 @@
-hi mas yuda mas rexy, ini susah banget praktikumnyaaa
+Halo, ini tugas praktikum
